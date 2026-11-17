@@ -1,1 +1,0 @@
-# Trilha-Ecologica-Saimiri
